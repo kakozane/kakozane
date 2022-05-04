@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @kennyouzhang
 - 👀 I’m interested in Anime Manga 
+- The previous account is cancelled, this is my new account from today.
 - Twitter@kennyouzhang
 <!---
 kennyouzhang/kennyouzhang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
