@@ -1,6 +1,6 @@
 - 👋 Hi, I’m kakozane.
 - 👀 I’m interested in Anime and Manga.
 - The previous account is cancelled, so this is my new account from today.
-- I'm back!!!!435345！！！！！！！！！！！！！！！！
-- Go + React!!!！！！！！！！！！！！！！！！！！！！！！
+- I'm back!!!!435345！！！！！！！！！！！！！！！！!!!!
+- Go + React!!!！！！！！！！！！！！！！！！！！！！！！!!!!!!!!!!
 - !!!!!!!!!!!!!1!!!11!!!!!!!!!!34223432
