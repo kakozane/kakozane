@@ -2,6 +2,6 @@
 - 👀 I’m interested in Anime and Manga.
 - The previous account is cancelled, so this is my new account from today.
 - I'm back!！！！！！！！!!!!!!！！！！！！
-- Go + React！！！！！！！！！！！！！！！！！!!!！！！！！！！1！！
-- 12132132123231236545678987879544594654
+- Go + React！！！！！！！！！！
+- 1213213212323123654567898
 
