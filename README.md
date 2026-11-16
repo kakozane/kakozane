@@ -3,5 +3,5 @@
 - The previous account is cancelled, so this is my new account from today.
 - I'm back!！！！！！！！!!!!!!！！！！！！
 - Go + React！！！！！！！！！！
-- 1213213212323123654567898
+- 12132132123
 
